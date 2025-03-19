@@ -21,3 +21,5 @@ Busco oportunidades para aplicar minha experiência e conhecimentos na área de 
 ### 📎 Contato
 🔗 [LinkedIn](https://www.linkedin.com/in/brunoaureliodelisboa/)
 🔗 [GitHub](https://github.com/brunoaureliodelisboa)
+
+Atualizado ás 18h11 - 19/03/2025
